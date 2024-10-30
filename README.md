@@ -1,16 +1,35 @@
-## Hi there 👋
+𝒲𝑒𝓁𝒸𝑜𝓂𝑒!!👋🏻
 
-<!--
-**mmariarosz/mmariarosz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+-Meu nome é Maria Rosa, mas a xybebella me chama de Rosa🌹.
+-Desenvolvo jogos no [Alura](https://www.alura.com.br/).
+-Faço uso desse espaço para minha organização e compartilhamento dos meu projetos desenvolvidos.
+-Amo jogos, sejam eles esportivos de tabuleiro, eletrônicos, de mesa, de cartas ou de papel e caneta🎮.
+-Gosto de ler de escutar música.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
