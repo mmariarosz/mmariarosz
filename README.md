@@ -4,7 +4,7 @@
 -Desenvolvo jogos no [Alura](https://www.alura.com.br/).
 -Faço uso desse espaço para minha organização e compartilhamento dos meu projetos desenvolvidos.
 -Amo jogos, sejam eles esportivos de tabuleiro, eletrônicos, de mesa, de cartas ou de papel e caneta🎲.
--Gosto de ler de escutar música.
+-Gosto de ler e de escutar música.
 
 
 
